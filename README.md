@@ -1,6 +1,6 @@
-![image](https://user-images.githubusercontent.com/91090270/204361168-0a2729fe-228c-45a0-87db-3ce5b4ff1629.png)
+![image](https://avatars.githubusercontent.com/u/91090270?s=400&u=2eeeb1b8069853aaa9ab56bfc6c1a53dcec55de5&v=4)
 
-I am a frontend web developer with more than 2 years of experience. I am a proactive, dynamic, sociable and responsible person who has the ability to learn new things quickly. I have an intermediate level of English (B1). I am currently focused on growing professionally in my career and as a person.
+I am a frontend web developer with more than 3 years of experience. I am a proactive, dynamic, sociable and responsible person who has the ability to learn new things quickly. I have an intermediate level of English (B1). I am currently focused on growing professionally in my career and as a person.
 
 I am currently still training in other technprofileologies and putting together more projects! 💻😁
 
