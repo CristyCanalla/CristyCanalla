@@ -1,4 +1,4 @@
-![image](https://upload.wikimedia.org/wikipedia/commons/thumb/4/47/React.svg/1200px-React.svg.png)
+![image](https://img.freepik.com/vector-gratis/hacker-que-opera-ilustracion-icono-historieta-ordenador-portatil-concepto-icono-tecnologia-aislado-estilo-dibujos-animados-plana_138676-2387.jpg?w=2000)
 
 I am a frontend web developer with more than 3 years of experience. I am a proactive, dynamic, sociable and responsible person who has the ability to learn new things quickly. I have an intermediate level of English (B1). I am currently focused on growing professionally in my career and as a person.
 
